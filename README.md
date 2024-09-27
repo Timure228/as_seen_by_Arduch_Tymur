@@ -1,0 +1,1 @@
+# as_seen_by_Arduch_Tymur
